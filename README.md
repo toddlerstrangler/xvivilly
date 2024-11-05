@@ -1,7 +1,7 @@
 ![top](https://64.media.tumblr.com/e35fdbdabcc1d8bfb49734ca30a8c994/48d03df126900a99-89/s1280x1920/0d94c9d736692aeaed64279ad4158064dfbacb8f.pnj)
 
-vivilly or tezzi : he/it/sh3 !!
-we are an hc-did system " 1k alters (not happy)
+-> vivilly or tezzi : he/it/sh3 !! <-
+-> we are an hc-did system " 1k alters (not happy) <-
 
 ![](https://komarev.com/ghpvc/?username=xvivilly&style=platic-square&label=visitors)
 
