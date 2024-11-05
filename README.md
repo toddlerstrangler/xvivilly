@@ -5,7 +5,7 @@ vivilly or tezzi : he/it/sh3 !! 16 years old.
 
 we are an hc-did system " 1k alters.... (not happy)
 
-host: jay and logan ,, cohost: anya and harumi
+host: jay and logan | cohost: anya and harumi
 
 if u need a sibling or parent figure in ur life we're here idfk
 
