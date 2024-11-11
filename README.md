@@ -1,7 +1,6 @@
 ![top](https://static.wikia.nocookie.net/cookierunkingdom/images/c/c6/Beast_banner.png/revision/latest?cb=20240121055203)
 
-
-vivilly or tezzi : he/it/sh3 !! 16 years old.
+shadow milk , viv or tezzi : he/it/sh3 !! 16 years old.
 
 our collective sign off is 🪼🫧/💙 (🪻on occassion)
 
