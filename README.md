@@ -1,4 +1,4 @@
-![top](https://64.media.tumblr.com/dc0b1ea53e89cce6002e2203d6dcd132/585e2967464e4bf8-6d/s1280x1920/6775a7f176b6f5601165e57d8b3d71526d883baa.pnj)
+![top](https://static.wikia.nocookie.net/cookierunkingdom/images/c/c6/Beast_banner.png/revision/latest?cb=20240121055203)
 
 
 vivilly or tezzi : he/it/sh3 !! 16 years old.
